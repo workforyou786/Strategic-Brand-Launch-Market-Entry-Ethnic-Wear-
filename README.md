@@ -3,7 +3,7 @@
 **Role:** Consultant  
 **Project Type:** End-to-End D2C Brand Strategy & Execution  
 **Market:** Indian Premium Ethnic Wear  
-**Duration:** 12 Months  
+**Duration:** 6 Months  
 
 ---
 
